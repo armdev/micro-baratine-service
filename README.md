@@ -24,6 +24,5 @@ I can't find another words.
 ![Alt text](http://www.squawka.com/news/wp-content/uploads/2015/11/WhichGalaticoAreYou.jpg "Baratine Galácticos")
 
 
-3. Just enjoy !
  
 
